@@ -1,0 +1,2 @@
+# G-Corp-The-Icon-South
+G Corp The Icon South is a Pre Launch project and is coming up in Banashankari 3rd Stage, Bangalore. Where Banashankari is known as Heart of Bangalore. The area is convenient and is situatable in various services. The project offers 2 &amp; 3 BHK apartments with sizes ranging from 900 to 1096 sqft for 2 BHK flats and 1365 to 1500 sqft for 3 BHK Flats. The price 4500 -  4600 per sqft. FOR MORE DETAILS:: Website: http://www.gcorptheiconsouth.in/  Email: info@homeadda.co.in  Mob: +91 8884747474
